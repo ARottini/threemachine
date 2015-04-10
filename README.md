@@ -1,3 +1,3 @@
 # threemachine
 -----------------
-Byran sharp is gay
+Byran sharp is a guy
