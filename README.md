@@ -1,3 +1,2 @@
 # threemachine
------------------
-Byran sharp is gay
+LOLOLOLOLOL I STOLE THIS BROKEN PROGRAM
